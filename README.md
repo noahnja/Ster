@@ -1,2 +1,2 @@
 # Ster
-ayo
+ayoooooooooooooooooooooooooooooooooo
